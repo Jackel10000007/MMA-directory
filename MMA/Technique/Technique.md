@@ -1,0 +1,1 @@
+MMA (Mixed Martial Arts), _technique_ refers to the specific methods or skills fighters use to control, strike, submit, or otherwise outperform their opponents. Techniques in MMA often draw from various martial arts disciplines, each offering a different set of tools for attacking, defending, or countering. Here’s an overview of some of the main technique types in MMA:

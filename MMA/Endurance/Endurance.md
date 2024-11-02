@@ -1,0 +1,3 @@
+Endurance is a key component in athletic performance, especially in sports like MMA that demand sustained energy and physical resilience over time. In general, endurance can be broken down into different aspects, each focusing on a different area of stamina and energy management:
+
+Incorporating these aspects of endurance into a well-rounded training program builds the physical and mental stamina required for competitive and demanding sports like MMA, where fighters need sustained strength, quick recovery, and focus across multiple rounds.

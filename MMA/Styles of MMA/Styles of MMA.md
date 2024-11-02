@@ -1,0 +1,1 @@
+MMA fighters typically blend techniques from several martial arts styles, but some styles are more commonly used due to their effectiveness in mixed combat. Here are some of the most common martial arts styles in MMA and what they bring to a fighter's skill set:
